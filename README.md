@@ -43,5 +43,7 @@ IBM Data Analyst Professional Certificate | Expected 2024
 
 🤝 Let's Connect
 Email: dave.sidnbois@gmail.com
-https://www.linkedin.com/in/daveshanesidnbois/LinkedIn: 
+
+LinkedIn: https://www.linkedin.com/in/daveshanesidnbois/LinkedIn: 
+
 Portfolio: https://www.artstation.com/criticalhymn
